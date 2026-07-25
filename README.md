@@ -5,4 +5,4 @@
 - 💬 Ask me about: all things sociology, some things policy (labor market & housing especially); always happy to talk yoga too.
 - 📫 How to reach me: katietait@gmail.com
 - 😄 Pronouns: she/her
-- ⚡ Fun facts: I have an awesome Labrador retriever named Mabel. I've lived in Mexico (Morelia) & favorite place is Mexico City. I've also lived in NYC and North Carolina and love those too. 
+- ⚡ Fun facts: I have an awesome Labrador retriever named Mabel. I've lived in Mexico (Morelia) & favorite place is Mexico City. I've also lived in NYC (MA New School for Social Research) and North Carolina (PhD UNC-CH) and love those too. 
